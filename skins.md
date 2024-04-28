@@ -6,5 +6,5 @@
 # [youngplatemonko](https://rabus.s-ul.eu/YYyLyGUR)
 ![](https://cdn.discordapp.com/attachments/640104507673411604/1233740015876702238/youngplatemonko.jpg?ex=662e316d&is=662cdfed&hm=b655b3f4705463e8562591e0a2f675f461c9be44e71018a25df24b33a0e8bf99&)
 
-# [platekito2](https://rabus.s-ul.eu/4XCgLnGI)
-![](https://cdn.discordapp.com/attachments/640104507673411604/1233740016145141871/platekito2.jpg?ex=662e316d&is=662cdfed&hm=6d7f893c781a0de5c83fc411fc0d9937c77e0c2e68d261c061078f4044c2beb9&)
+# [platekito2](https://rabus.s-ul.eu/J78rA0JI)
+![](https://cdn.discordapp.com/attachments/640104507673411604/1234043938948517919/screenshot032.jpg?ex=662f4c7a&is=662dfafa&hm=3a3c3959974555224789922f4045e5f9da528557b40d3b8b180c4fb5e7b5f067&)
