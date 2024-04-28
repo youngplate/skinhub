@@ -1,7 +1,7 @@
 # youngplate skins
 
-# [rafisyoungplate](https://rabus.s-ul.eu/skVtEHkh)
-![](https://cdn.discordapp.com/attachments/640104507673411604/1233740016388407306/rafisyoungplate.jpg?ex=662e316d&is=662cdfed&hm=a58ff076089142080c019f3440d518bac72a54594253bf3b05361551a804c428&)
+# [rafislugiayoungplate](https://rabus.s-ul.eu/imDA8aRk)
+![](https://cdn.discordapp.com/attachments/640104507673411604/1234163244910776392/screenshot034.jpg?ex=662fbb97&is=662e6a17&hm=3ff25546add67692c825720d7705de9a8eefa43649f0454133c5d64661ccd349&)
 
 # [youngplatemonko](https://rabus.s-ul.eu/YYyLyGUR)
 ![](https://cdn.discordapp.com/attachments/640104507673411604/1233740015876702238/youngplatemonko.jpg?ex=662e316d&is=662cdfed&hm=b655b3f4705463e8562591e0a2f675f461c9be44e71018a25df24b33a0e8bf99&)
